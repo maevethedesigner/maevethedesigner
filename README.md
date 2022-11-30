@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @maevethedesigner
+- 👀 I’m interested in graffic design and art.
+- 🌱 I’m currently learning books of romantic and realistic literature of Brazil, for example, Machado de Assis.
+- 💞️ I’m looking to collaborate on Pigz
+- 📫 How to reach me: My email: mariaeduardafas2004@gmail.com and my instagram: @maeve_earts
